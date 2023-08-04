@@ -1,0 +1,1 @@
+# tarsadalom_kritika
